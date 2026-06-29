@@ -1,4 +1,4 @@
-#  
+#  Experience easter tap simulator like never before with easter tap simulator vip Scripts, the #1 Script. Includes auto-collect and infinite resources
 
 
 
